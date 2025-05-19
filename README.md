@@ -13,7 +13,7 @@ For example, while most policies might cap jewelry coverage at $2,500, a Prestig
 
 ## Why Homeowners Choose Prestige Coverage
 
-Prestige Home Insurance is popular for its broad protection, exclusive benefits, and exceptional service. High-net-worth individuals are drawn to it not only for safeguarding property value but also for maintaining their lifestyle. Features like:
+[Prestige Home Insurance](https://myhomeinsuranceguide.com/prestige-home-insurance/) is popular for its broad protection, exclusive benefits, and exceptional service. High-net-worth individuals are drawn to it not only for safeguarding property value but also for maintaining their lifestyle. Features like:
 
 •	Higher liability limits
 •	Coverage for private staff or rare items
@@ -60,7 +60,7 @@ Even with a top-tier policy, claims can be denied. If this happens:
 •	Gather additional evidence (photos, receipts)
 •	File a formal appeal
 •	Seek third-party help if necessary (e.g., public adjusters)
-•	You can find other insurance options here: Home Insurance
+•	You can find other insurance options here: [Home Insurance](https://myhomeinsuranceguide.com/)
 
 Persistence and documentation are key. Many claim denials are overturned with the right information and assertive follow-up.
 
